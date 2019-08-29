@@ -7,5 +7,3 @@ https://lucid.blog/akposodije/post/1566584090
 
 https://cloudinary.com/console
 
-
-https://lucid.blog/akposodije/post/task-3-507
